@@ -1,1 +1,1 @@
-Laboraornaya rabota №7
+Laboraornaya rabota 
